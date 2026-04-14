@@ -9,7 +9,7 @@
 
 - My facebook [https://web.facebook.com/gaulmtvn](https://web.facebook.com/gaulmtvn)
 
-- How to reach me **lmtgau@gmail.com**
+- How to contact me **lmtgau@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
