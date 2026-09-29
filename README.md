@@ -4,7 +4,7 @@
 
 - Coding project together [Codenet](codenet.fun)
 
-- Quiz libary [Quiz libary](gaulmt.ct.ws)
+- Quiz libary [Quiz libary](iuh-lib.online)
 
 
 - My facebook [https://web.facebook.com/gaulmtvn](https://web.facebook.com/gaulmtvn)
